@@ -7,7 +7,7 @@
 ![](Screenshot%20at%20Aug%2002%2016-04-37.png)
 ![](Screenshot%20at%20Aug%2002%2016-06-30.png)
 ![](Screenshot%20at%20Aug%2002%2016-06-50.png)
-![](Screenshot%20at%20Aug%2002%2016-07-34.png)
+
 ![](Screenshot%20at%20Jul%2029%2011-02-31.png)
 ![](Screenshot%20at%20Jul%2029%2011-02-53.png)
 ![](Screenshot%20at%20Jul%2029%2011-03-31.png)
